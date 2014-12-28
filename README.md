@@ -2,3 +2,4 @@
 
 - Haruka Amami
 - Miki Hoshi
+- Yayoi Takatsuki
