@@ -4,3 +4,5 @@
 - Miki Hoshi
 - Yayoi Takatsuki
 - Iori Minase
+- Hibiki Ganaha
+- Chihaya Kisaragi
